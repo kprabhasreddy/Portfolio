@@ -1,4 +1,4 @@
-# Prabhas Reddy Portfolio
+# Prabhas Reddy once said...
 
 Isn't it funny when people write: “Strategic, results-oriented professional with proven track record of delivering results and a demonstrated history working in the XYZ industry.” What does that even mean?
 
